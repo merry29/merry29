@@ -5,7 +5,7 @@ Hoje trabalho como facilitador no vai na web 👩‍🔧
 Estudando Python 👨‍💻
 Estudando Ingles  🤓 
 Pronomous : hi/him  🧑🏿 
-Email : merry.esperanca@precisaser.org 📧
+Email : merrimalaquias@gmail.com 📧
 
 <div style="display: inline_block"><br>
 
